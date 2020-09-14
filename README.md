@@ -1,4 +1,4 @@
-# ![Alt text](1.png) *A new Insurtech super star* 
+# ![Alt text](1.jpg) *A new Insurtech super star* 
 ## Overview and Origin: [1](https://www.finaeo.com/our-founding-story/)
 * Finaeo Inc. [LinkedIn Profile](https://www.linkedin.com/company/finaeo/)
 * Founded in 2016
